@@ -6,8 +6,8 @@ $\Large\color{#f00}{\textsf{dni! - > racism, lgbtq-phobes, neoprns(see bottom), 
 
 
 
-$\color{#1f09fa}{\textsf{text}}$
-𓏵  ׅ           dani / sometangerine / *whatever my pony's name is, call me it*                 . 𓏵 
+
+𓏵  ׅ          $\color{#1f09fa}{\textsf{dani}}$  / sometangerine / *whatever my pony's name is, call me it*                 . 𓏵 
                    any/all *BUT IT/ITS*    ◞    #  f2i, **come up to me please!**  , i $\color{#f00}{\textsf{may not respond, please take that lightly!}}$
               
               
