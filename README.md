@@ -7,6 +7,6 @@ $\color{#1f09fa}{\textsf{text}}$
                    any/all *BUT IT/ITS*    ◞    #  f2i, **come up to me please!**  
               
               
- $\color{#f00}{\textsf{FANDOMS!!}}$ -> ,, **scp, a hat in time,** undertale, deltarune, dsaf, **ultrakill**, blocktales, forsaken, pressure, regretavator, **jak and daxter, spyro (the legend series, specifically)**, skylanders, **dead cells, hollow knight**, sky: children of the light, sonic, scp, **kirby**, batim/batdr, **madness combat**
+ $\color{#f00}{\textsf{FANDOMS!!}}$ -> ,, *scp, a hat in time,* undertale, deltarune, dsaf, *ultrakill*, blocktales, forsaken, pressure, regretavator, *jak and daxter, spyro (the legend series, specifically)*, skylanders, *dead cells, hollow knight*, sky: children of the light, sonic, *kirby*, batim/batdr, *madness combat*
 
  
