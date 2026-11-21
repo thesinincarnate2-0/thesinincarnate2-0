@@ -1,4 +1,5 @@
-$\color{red}{\textsf{hihi hello helloo welcome to.....}}$ <img width="50" align="absmiddle" alt="sticker" src="https://github.com" />
+$\color{red}{\textsf{hihi hello helloo welcome to.....}}$ <img width="60" height="60" alt="plague_doctor_sticker" src="https://github.com/user-attachments/assets/13a04db6-a721-4a72-9c45-b8a5fedab61d" />
+
 
 
 $\color{#1f09fa}{\textsf{text}}$
