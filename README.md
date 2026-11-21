@@ -1,4 +1,4 @@
-$\color{red}{\textsf{hihi hello helloo welcome to my github! feel free to look around ^_^}}$ <img width="60" height="60" alt="plague_doctor_sticker" src="https://github.com/user-attachments/assets/13a04db6-a721-4a72-9c45-b8a5fedab61d" /> 
+$\color{red}{\textsf{hihi hello helloo welcome to my github! feel free to look around}}$ <img width="60" height="60" alt="plague_doctor_sticker" src="https://github.com/user-attachments/assets/13a04db6-a721-4a72-9c45-b8a5fedab61d" /> 
 
 $\Large\color{#f00}{\textsf{dni! - > racism, lgbtq-phobes, neoprns(see bottom), problematic supporters, bottom for all}}$
 
