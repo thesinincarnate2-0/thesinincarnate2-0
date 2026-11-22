@@ -14,3 +14,8 @@ $\Large\color{#f00}{\textsf{dni! - > racism, lgbtq-phobes, neoprns(see bottom), 
  $\color{#f00}{\textsf{FANDOMS!!}}$ -> ,, *scp, a hat in time,* undertale, deltarune, dsaf, *ultrakill*, blocktales, forsaken, pressure, regretavator, *jak and daxter, spyro (the legend series, specifically)*, skylanders, *dead cells, hollow knight*, sky: children of the light, sonic, *kirby*, batim/batdr, *madness combat*
 
  
+<img width="735" height="441" alt="image" src="https://github.com/user-attachments/assets/6818eb21-e75f-4dce-815a-81848d3c46f4" />
+
+  _I also block equally as free as @thesinincarnate does, please be aware_
+
+  <img width="735" height="489" alt="image" src="https://github.com/user-attachments/assets/3c719315-07c6-4514-8bee-d2a68f9f2bd5" />
