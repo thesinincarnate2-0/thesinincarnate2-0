@@ -7,11 +7,11 @@ $\Large\color{#f00}{\textsf{dni! - > racism, lgbtq-phobes, neoprns(see bottom), 
 
 
 
-𓏵  ׅ          $\color{#1f09fa}{\textsf{dani}}$  / sometangerine / *whatever my pony's name is, call me it*                 . 𓏵 
+𓏵  ׅ          $\color{#1f09fa}{\textsf{dani}}$  / sometangerine / *whatever my pony's name is, call me that!*                 . 𓏵 
                    any/all *BUT IT/ITS*    ◞    #  f2i, **come up to me please!**  , i $\color{#f00}{\textsf{may not respond, please take that lightly!}}$
               
               
- $\color{#f00}{\textsf{FANDOMS!!}}$ -> ,, *scp, a hat in time,* undertale, deltarune, dsaf, *ultrakill*, blocktales, forsaken, pressure, regretavator, *jak and daxter, spyro (the legend series, specifically)*, skylanders, *dead cells, hollow knight*, sky: children of the light, sonic, *kirby*, batim/batdr, *madness combat*
+   $\color{#f00}{\textsf{FANDOMS!!}}$ -> ,, *scp, a hat in time,* undertale, deltarune, dsaf, *ultrakill*, blocktales, forsaken, pressure, regretavator, *jak and daxter, spyro (the legend series, specifically)*, skylanders, *dead cells, hollow knight*, sky: children of the light, sonic, *kirby*, batim/batdr, *madness combat*
 
  
   <img width="200" height="100" alt="image" src="https://github.com/user-attachments/assets/6818eb21-e75f-4dce-815a-81848d3c46f4" />
