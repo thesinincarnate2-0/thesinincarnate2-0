@@ -23,3 +23,9 @@ $\Large\color{#f00}{\textsf{dni! - > racism, lgbtq-phobes, neoprns(see bottom), 
   _I also block equally as free as @thesinincarnate does, please be aware_
 
   <img width="200" height="100" alt="image" src="https://github.com/user-attachments/assets/3c719315-07c6-4514-8bee-d2a68f9f2bd5" />
+
+visit my DNI here! I share one w The Sin Incarnate \^\^
+
+- >  https://docs.google.com/document/d/1Cs8-IX-6ohx3IVcRO-WFKdeUSJemLjhlXaJSClnBi5U/edit?usp=sharing
+
+\-  \-  \-  \-  \-  \-  \- / Goodbye! / \-  \-  \-  \-  \-  \-  \-
