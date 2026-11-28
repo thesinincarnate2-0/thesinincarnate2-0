@@ -31,4 +31,4 @@ visit my DNI here! I share one w The Sin Incarnate \^\^
 \-  \-  \-  \-  \-  \-  \- / Goodbye! / \-  \-  \-  \-  \-  \-  \-
 
 
-<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/2877cdea-1351-450b-a5ce-b44e01237096" />
+<img width="750" height="281" alt="image" src="https://github.com/user-attachments/assets/2877cdea-1351-450b-a5ce-b44e01237096" />
