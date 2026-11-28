@@ -29,3 +29,6 @@ visit my DNI here! I share one w The Sin Incarnate \^\^
 - >  https://docs.google.com/document/d/1Cs8-IX-6ohx3IVcRO-WFKdeUSJemLjhlXaJSClnBi5U/edit?usp=sharing
 
 \-  \-  \-  \-  \-  \-  \- / Goodbye! / \-  \-  \-  \-  \-  \-  \-
+
+
+<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/2877cdea-1351-450b-a5ce-b44e01237096" />
